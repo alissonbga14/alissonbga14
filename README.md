@@ -2,7 +2,7 @@
 
 **`Engenheiro da Computação`**
 
-Me chamo Alisson Braga , tenho 30 anos e sou natural do Pará. possuo uma graduação em Engenharia Civil com foco direcionado a metodologia BIM, tambem o curso técnico em Redes de Computadores ao qual dei uma ênfase maior em cibersegurança voltada para infraestruturas. Atualmente, estou cursando Engenharia da Computação no IF Goiâno CAMPUS TRINDADE. Sou apaixonado por tecnologia e pela maneira como ela pode transformar ideias em realidade, seja no código, na nuvem ou no mundo físico.
+Me chamo Alisson Braga , tenho 30 anos e sou natural do Pará. possuo uma graduação em Engenharia Civil com foco direcionado a metodologia BIM, possuo curso técnico em Redes de Computadores ao qual dei uma ênfase maior em cibersegurança voltada para infraestruturas. Atualmente, estou cursando Engenharia da Computação no IF Goiâno CAMPUS TRINDADE. Sou apaixonado por tecnologia e pela maneira como ela pode transformar ideias em realidade, seja no código, na nuvem ou no mundo físico.
 LinkeDin : (https://www.linkedin.com/in/alisson-braga-de-sousa-604923102?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bv4RVaB8HRi%2B048S4vs3vIg%3D%3D)
 
 <p align="left">
